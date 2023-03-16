@@ -1,6 +1,6 @@
 # I'm Thomas Perron <img src="https://cdn3.iconfinder.com/data/icons/glyph/227/Talk-hi-512.png" width="50"/>
 
-##### 2022 Best Anonymous Leader @[Kumojin](https://kumojin.com/en)
+##### 2022 Best Anonymous Leader | [Kumojin](https://kumojin.com/en) Dundee Awards
 
 <img src="https://icons.iconarchive.com/icons/wikipedia/flags/128/CA-Canada-Flag-icon.png" width="30"> <img
 src="https://icons.iconarchive.com/icons/wikipedia/flags/1024/US-United-States-Flag-icon.png" width="30"> <img 
